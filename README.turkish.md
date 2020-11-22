@@ -19,7 +19,7 @@ Böyle bir organizasyonu oluşturmak için şu ilkeleri gözetiriz:
 
 6. **Tepkiler incelik gerektirir.** Elbette kızgınlık içeren tepkiler olacaktır, ancak kaba bir dil ve kinci davranışlar zehirlidir. Tepki vermen gereken bir durum olduğunda, fikrini savunarak karşılık ver ama saygılı ol. Makul ol ve kabahat sahibinin kendisini açıklamasına, problemi düzeltmesine fırsat verecek şekilde yaklaş.
 
-7. **Fikirler sadece fikirlerdir.** Herbirimiz yetiştirilme tarzımıza ve geçmiş deneyimlerimize dayalı olarak değişen fikirlere sahibiz. Bu kesinlikle kabul edilbebilir bir gerçek. Şunu unutma: Eğer kendi fikirlerine saygı duyuyorsan, diğerlerininde fikirlerine saygı duymalısın.
+7. **Fikirler sadece fikirlerdir.** Herbirimiz yetiştirilme tarzımıza ve geçmiş deneyimlerimize dayalı olarak değişen fikirlere sahibiz. Bu kesinlikle kabul edilbebilir bir gerçek. Şunu unutma: Eğer kendi fikirlerine saygı duyuyorsan, diğerlerinin de fikirlerine saygı duymalısın.
 
 8. **Her insan hata yapar.** Hata yapmak niyetinde olmayabilirsin, ancak hatalar yapılır ve tecrübe edinmene katkıda bulunur. Bilinçsizce yapılan hataları tölere et, ve eğer hata yapan sensen özür dilemekten çekinme.
 
